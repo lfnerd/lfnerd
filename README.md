@@ -1,0 +1,4 @@
+- Hi, I’m Nerdery (lfnerd)
+- I’m interested in coding/og accounts
+- I’m currently learning go/python
+- Contacts: Nerdery#0001 Tele: Nerdery
